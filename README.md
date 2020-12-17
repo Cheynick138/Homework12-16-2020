@@ -1,1 +1,1 @@
-# Homework12-16-2020
+Honestly I have to give Sara Taylor a lot of thanks. I've had a rough few weeks and missplaced some homeworks and done somethings that I shouldn't have. Honestly it's really weird falling behind and I think I'm on my come up now. I need to get going in this journey and see how much I can learn and reatin. 
